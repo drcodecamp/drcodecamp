@@ -12,8 +12,8 @@
 </p>
 
 
-⚡ Full javascript css html course for 2023 is now on Youtube for FREE.
+⚡ Full javascript css html course for 2024 is now on Youtube for FREE.
 
-⚡ Full react js 2023 full course for 2023 is now on Youtube for FREE.
+⚡ Full react js 2024 full course for 2024 is now on Youtube for FREE.
 
 Enter https://www.doctorcode.org for more!
